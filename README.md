@@ -1,1 +1,0 @@
-# marek-slipski.github.io
